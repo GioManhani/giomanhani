@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do GiovanneManhani Teixeira 😁
+## Bem-vindo(a) ao perfil do Giovanne Manhani Teixeira 😁
 
  <div>
   <a href="https://github.com/GioManhani">
